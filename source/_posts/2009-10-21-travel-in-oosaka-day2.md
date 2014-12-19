@@ -4,11 +4,10 @@ tags: [Japan, Travel]
 ---
 
 這次雖然住在大阪，不過前兩天卻要起個大早，坐一個小時的火車到京都，
-抵達時都還沒八點勒，難得放假出去玩為何要起的比小學生還要早?
+抵達時都還沒八點勒，難得放假出去玩為何要起的比小學生還要早? 這是因為跟一家叫 [`岡本織物`](http://www.okamoto-kimono.com/)的店家有約。  
 
 岡本織物
 -----------
-這是因為跟一家叫 [`岡本織物`](http://www.okamoto-kimono.com/)的店家有約。
 岡本織物是提供所謂的”和服體驗，該店就座落在清水寺的旁邊，佔盡地利，
 客人換完裝走兩下就到清水寺，方便的很。 
 ![岡本織物，這個角度是從店內拍出去的](https://lh6.googleusercontent.com/-ep2m-jewGzw/SucoioBJDNI/AAAAAAAArr4/0UAQhE3Jamc/w879-h585-no/DPP_0085.JPG)  
