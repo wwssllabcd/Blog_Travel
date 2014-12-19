@@ -86,7 +86,7 @@ exclude_generator:
 ## Docs: http://hexo.io/docs/deployment.html
 deploy:
   type: github
-  repository: git@github.com:wwssllabcd/hexo.git
+  repository: git@github.com:wwssllabcd/Blog_Travel.git
   branch: gh-pages
   
 marked:
