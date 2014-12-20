@@ -4,8 +4,9 @@ tags: [Travel, China]
 ---
 
 次日一大早起來，吃了點兒點心，尋了台的士，便前往南京車站，一到車站，哇，人山人海，
-其實並不是車站人多，而是到處都是這麼多人，趁著等車的空檔，到車站的商店逛逛，居然有賣兔肉
-![其實當地人根本不覺得有什麼](https://lh6.googleusercontent.com/-ryjUncB09nU/SLBZ4QTfFNI/AAAAAAAAOLk/MrRY19BPabo/w877-h585-no/IMG_5639.JPG)  
+其實並不是車站人多，而是到處都是這麼多人，趁著等車的空檔，到車站的商店逛逛，居然有賣兔肉![其實當地人根本不覺得有什麼][1]    
+
+<!-- more -->
 
 上海到南京只要兩個小時左右，還蠻近的，看到這個車名就想到協和號飛機， 難不成是仿協和號來的？
 上了車之後，找到了位置，正準備休息時，心想買的是最高級的座位，應該會比較好一點，沒想高級車位的大陸人一樣很吵，
@@ -13,7 +14,7 @@ tags: [Travel, China]
 有露內褲頭的小姐，也有昏倒在路邊的人，還有當眾溜鳥的人，各種不同的文化參雜在一起，配合著高檔設施，刹是奇景   
 
 到了南京也接近中午時分，心想到大陸一定要吃道地的食物，否則不就白來了？於是找了間看起來蠻 local 的快餐店，點了一份套餐吃
-![好像是雅新快餐](https://lh5.googleusercontent.com/-rTZSuir4r2w/SLBaNaLCkLI/AAAAAAAAOLk/VKRCAmFXi0A/w877-h585-no/IMG_5660.JPG)  
+![好像是雅新快餐][2]
 
 這份看起來不錯的快餐其實難吃到爆炸，食物一整個臭掉，當機立斷，當場丟掉，
 也許是南京的天氣太熱的緣故吧，後來又跑去隔壁的肯德雞吃，這時候才瞭解為這些國際速食可以發展起來的原因了  
@@ -22,18 +23,15 @@ tags: [Travel, China]
 雨花台區最著名的就是有個雨花閣了，不過這裡也是共產黨愛國教育的基地，蠻有趣的，
 而上去園區要爬山，若不想爬山的可以坐遊覽車，只不過要多付個10塊RMB罷了  
 
-
 一進園區，映入眼廉的就是這尊石雕了，石雕的人物有小還有大人，不過看來都是十幾二十歲的樣子
 有些石雕人物手上是被上了枷鎖的，像是很害怕而聚在一起尋求保護的樣子，離開山下的廣場，
 坐著遊園車往上，看到一尊銅像，全身手僚腳銬，神情悲壯，而銅像後面裡面還有個碑，似乎控述著共產黨以前被光頭殺的有多慘   
-![一整個黨國教育的感覺](https://lh5.googleusercontent.com/-dQBR5GJJ2Bs/SLBaUTOa3vI/AAAAAAAAOLk/iQSAgcpRdAQ/w877-h585-no/IMG_5662.JPG)  
-![](https://lh3.googleusercontent.com/-dpDOKtg-87o/SLBaluuDVXI/AAAAAAAAOLk/mNmqPBf55ZE/w877-h585-no/IMG_5679.JPG)  
-
+![一整個黨國教育的感覺][3]
 
 大陸現在拼經濟可兇了，參觀大小廟宇房屋什麼的都要錢，不過說也奇怪了，今天居然看到不要錢的，有這種事？
 入了大門，便看到兩副紅色的對聯，喝水不忘毛主席，時刻想念毛主席，解說員正帶著參觀的人在對毛主席的銅像鞠三鞠躬
 鞠完躬後，解說員就發給每個人毛澤東紀念護身符，帶在身上可以保平安除百病，考試考一百分，不過我並沒有拿
-![深情懷念](https://lh3.googleusercontent.com/-ofk3EenFByg/SLBauGfBgvI/AAAAAAAAOLk/oJYy0eH_88w/w877-h585-no/IMG_5685.JPG)  
+![深情懷念, 免費參觀][4]
 
 
 銅像右邊還有間小屋，裡面放著是各式各樣毛的紀念商品，上面有個紅布簾，原來今年是毛主席誕生113年，該不會每年都紀念吧
@@ -141,3 +139,12 @@ Sandra拾階而上，欲窺它的全貌
 
 
 那麼兩天一夜的南京行就這樣結束了，晚上又回到上海來，明天sandra要上班，所以明天就是我自己一個人在上海冒險嚕 
+
+
+
+[1]: https://lh6.googleusercontent.com/-ryjUncB09nU/SLBZ4QTfFNI/AAAAAAAAOLk/MrRY19BPabo/w877-h585-no/IMG_5639.JPG
+[2]: https://lh5.googleusercontent.com/-rTZSuir4r2w/SLBaNaLCkLI/AAAAAAAAOLk/VKRCAmFXi0A/w877-h585-no/IMG_5660.JPG
+[3]: https://lh3.googleusercontent.com/-dpDOKtg-87o/SLBaluuDVXI/AAAAAAAAOLk/mNmqPBf55ZE/w877-h585-no/IMG_5679.JPG
+[4]: https://lh3.googleusercontent.com/-ofk3EenFByg/SLBauGfBgvI/AAAAAAAAOLk/oJYy0eH_88w/w877-h585-no/IMG_5685.JPG
+
+
