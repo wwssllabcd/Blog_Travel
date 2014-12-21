@@ -1,6 +1,6 @@
 title: Firefox addon-SDK 介紹, page-mod
 date: 2014-12-21 16:45:54
-tags: [Japan, Travel]
+tags: Firefox
 ---
 
 今天要介紹的是Firefox addon-SDK 中的 [page-mod][lnk-PageMod], 使用時機為`想要把讀回來的網頁, 再加以修改`, 
