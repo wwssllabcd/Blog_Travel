@@ -18,7 +18,7 @@ tags: [Travel, China]
 ![](https://lh5.googleusercontent.com/-M1g0ddzrkAs/SLC_-eeEFSI/AAAAAAAAOLQ/bKu5dqI6JY4/w390-h585-no/IMG_6542.JPG)
 
 地下宮殿放著萬曆帝的寶座，右邊則是顯示了金剛牆的厚度，來這邊最好是對風水有點研究，因為神宗葬的方式與棺木擺設都是有學問的，
-不過說實在的，其實這邊陰陰的
+不過說實在的，其實這邊陰陰的  
 ![金剛牆](https://lh3.googleusercontent.com/-QZYVMjA30y0/SLDAkwLWubI/AAAAAAAAOLQ/WxcBj-_GfSE/w877-h585-no/IMG_6572.JPG)
 ![萬曆帝寶座](https://lh5.googleusercontent.com/-rLmOGYHmivk/SLDAfHpzOoI/AAAAAAAAOLQ/vw8ouyrFkOI/w877-h585-no/IMG_6565.JPG)
 
@@ -41,8 +41,12 @@ tags: [Travel, China]
 ![皇家接線生示意圖](https://lh5.googleusercontent.com/-optBTefl0_Q/SLDBrPgDkrI/AAAAAAAAOLQ/Rb6KNVTK-Hk/w877-h585-no/IMG_6593.JPG)
 
 
-頤和園還有另一個特色，長廊，非常長的走廊，深不見底
+頤和園還有另一個特色，長廊，非常長的走廊，深不見底  
 ![不知盡頭在哪的長廊](https://lh6.googleusercontent.com/-phuWNNT7Z3c/SLDB-Ex8IhI/AAAAAAAAOLQ/NlJj3ZBX5S0/w877-h585-no/IMG_6611.JPG)
 
-特別的是，長廊上的每幅畫都沒有重複，以下是張飛打岳飛的圖，猜猜看這是說什麼故事
+特別的是，長廊上的每幅畫都沒有重複，以下是張飛打岳飛的圖，猜猜看這是說什麼故事  
 ![](https://lh5.googleusercontent.com/-Z5Hyqy4YulA/SLDCH0eUjHI/AAAAAAAAOLQ/jmtSJ67trNU/w877-h585-no/IMG_6618.JPG)
+
+後記
+--------------
+由於時間的關係，頤和園只是匆匆一瞥，希望以後還有機會來嚕   

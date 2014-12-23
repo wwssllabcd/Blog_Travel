@@ -14,7 +14,7 @@ tags: [Travel, China]
 <!-- more -->
 
 我對 BurgerKing 有一份特殊的感情，因為我大學學業都是在 BurgerKing 完成的，當我畢業後，永和那家 BurgerKing 就倒了，真是不勝唏噓，
-BurgerKing 的早餐算是蠻豐富的，不過我比較期待飛機上的食物，尤其是 Sandra 跟我說港龍有吃到飽的 Häagen-Dazs :D~
+BurgerKing 的早餐算是蠻豐富的，不過我比較期待飛機上的食物，尤其是 Sandra 跟我說港龍有吃到飽的 Häagen-Dazs :D~  
 ![第一航廈，小的可憐，被評選為世界倒數的機場，希望交通局可以加加油](https://lh6.googleusercontent.com/-Nn8AjwOycEg/SLBPYVvIa1I/AAAAAAAAOLo/OBqZiwkHVhE/w878-h585-no/IMG_5582.jpg)  
 
 這次坐的是國泰航空，就是他要帶我去香港嚕，國泰只要你參加亞洲萬里通，就可以上網預劃座位 特地劃了一個靠窗的位置，View 還不錯，
@@ -56,10 +56,10 @@ BurgerKing 的早餐算是蠻豐富的，不過我比較期待飛機上的食物
 ![炸蝦，我忘了名稱了](https://lh3.googleusercontent.com/-RDYEgCeLDKU/SLBPuugMHsI/AAAAAAAAOLo/KC6k2XdTzsw/w878-h585-no/IMG_5618.jpg)  
 ![這東西有點扯，居然叫蔥油餅，騙我沒吃過蔥油餅嗎？](https://lh3.googleusercontent.com/odTTSejAb6al2rMBXA2BXSdh5yDh0rZafz2uwam8BMw=w878-h585-no)  
 
-吃完後，就到附近的上海新天地逛一逛，晚上的景色蠻漂亮的，不過我手又晃到
+吃完後，就到附近的上海新天地逛一逛，晚上的景色蠻漂亮的，不過我手又晃到  
 ![後來才知道我 ISO 給他開 100](https://lh6.googleusercontent.com/zgDwBbQX_LldktxwHzVVVxaY_E8BaTlNK0JGN8gMbb0=w878-h585-no)  
 ![某不知名洋樓](https://lh5.googleusercontent.com/4p4CFqq2MfHzEr8qaYooXKIS1lQ3XgmN7DjzBCmzlPw=w878-h585-no)  
 
 我提著大包小包的東西跟他們去逛街，雖然坐了一天的飛機，但是還蠻有精神的，
 基本上今天就在坐飛機轉機之間度過，台北飛上海原本只要三個小時，去香港轉機說要搞到六七個小時，害我第一天就這樣沒了，
-今天就在匆匆忙忙之中度過，明天則是搭一大早的動車`和諧號`到古都`南京`參觀
+今天就在匆匆忙忙之中度過，明天則是搭一大早的動車`和諧號`到古都`南京`參觀  

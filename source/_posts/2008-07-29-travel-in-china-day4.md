@@ -56,7 +56,7 @@ tags: [Travel, China]
 
 午門
 ------------
-而在我身後的就是傳說中的午門了，而從午門進去，就會真正的進到皇宮內院，而進去也是要買門票，還可以借導覽機
+而在我身後的就是傳說中的午門了，而從午門進去，就會真正的進到皇宮內院，而進去也是要買門票，還可以借導覽機  
 ![午門](https://lh6.googleusercontent.com/-B0pesAFJyQM/SLCsNiJyL4I/AAAAAAAAOLY/Z8zXs_AruSA/w877-h585-no/IMG_6167.JPG)  
 
 午門走進去後，就來太和門了，而這邊還不是真正皇帝上朝的地方，要穿過太和門，
@@ -77,12 +77,12 @@ tags: [Travel, China]
 外朝三殿指太和、中和、保和殿，這就是太和殿內，明清所有的大朝典禮都在這邊舉行，而皇帝也都是在這邊上朝的  
 ![太和殿內](https://lh5.googleusercontent.com/-TbxcXxCN-KA/SLCtXhnpGyI/AAAAAAAAOLY/vPKdQhVDVPU/w877-h585-no/IMG_6217.JPG)  
 
-穿過太和殿，接下來就是中和殿了，這裡是我記得沒錯的話，應該是皇帝上朝前準備的房間，也就是皇帝的休息室嚕，聽說這個書法是乾隆題的
+穿過太和殿，接下來就是中和殿了，這裡是我記得沒錯的話，應該是皇帝上朝前準備的房間，也就是皇帝的休息室嚕，聽說這個書法是乾隆題的  
 ![中和殿內](https://lh3.googleusercontent.com/-cnuRz86vgaY/SLCt5Qgka0I/AAAAAAAAOLY/YV5z17UJbUM/w877-h585-no/IMG_6239.JPG)  
 
 而故宮三不五時都會看到這種大銅缸，這是消防用的，因為故宮都是使用木材建材，所以比較容易有火災，
-而這個銅缸是在一個圓圓的東西的上面，面圓圓的東西是為了要放木材燒水用的，那幹麼要燒水呢？可不是要洗澡，而是北京緯度較高，在冬天水會結冰
-為了不讓水結冰，所以才要放木材燒，否則要救火時變冰塊就搞笑了  
+而這個銅缸是在一個圓圓的東西的上面，面圓圓的東西是為了要放木材燒水用的，那幹麼要燒水呢？可不是要洗澡，而是北京緯度較高，在冬天水會結冰，
+為了不讓水結冰，所以才要放木材燒，否則要救火時變冰塊就搞笑了   
 ![消防用大銅缸，下面的圓形空間是用來生火用的](https://lh6.googleusercontent.com/-WG58ZsCcKe0/SLCuEYTvY7I/AAAAAAAAOLY/x3PI__8LFl4/w877-h585-no/IMG_6247.JPG)  
 
 內廷三宮
@@ -113,7 +113,7 @@ tags: [Travel, China]
 故宮的護城河讓我想到日本皇居的護城河，不過說實在的，故宮的還是氣派的多...  
 ![護城河](https://lh6.googleusercontent.com/-0zhcQymUxSY/SLCvQTlTCKI/AAAAAAAAOLY/A_YK0X3okqI/w877-h585-no/IMG_6297.JPG)
 
-走出了故宮，後面還有個景山(媒山)，不過現在的我只想回飯店休息，腿都快斷了，只能跟崇禎皇帝那顆槐樹說掰掰了 >_<  
+走出了故宮，後面還有個景山(媒山)，不過現在的我只想回飯店休息，腿都快斷了，只能跟崇禎皇帝那顆槐樹說掰掰了 >_<   
 ![在御花園對面的景山](https://lh5.googleusercontent.com/-b8hQGQlkTlw/SLCvMYB0qbI/AAAAAAAAOLY/KVOtZkjQRSs/w390-h585-no/IMG_6294.JPG)
 
 什剎海
