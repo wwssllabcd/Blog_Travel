@@ -14,7 +14,7 @@ tags: [Japan, Travel]
 
 <!-- more -->
 
-而店內布置亦很日式(日式凌亂？)，雖然變裝價格稍高一點,
+而店內布置亦很日式(日式凌亂？)，雖然變裝價格稍高一點，
 但的確值得一試，在試裝完畢後，還不忘替你拍照"戰果"，PO在他們的網頁上喔(羞)，
 店內亦有非常多的和服可以挑選，雖然跟裡面的歐巴桑無法溝通，但是比手劃腳也是過的去啦，換好裝後，就直接到清水寺嚕。
 ![一堆和服任君選擇](https://lh5.googleusercontent.com/-biSOnkVvoww/SuconAtYbJI/AAAAAAAAOHI/Ad7C87pPVvg/w879-h585-no/DPP_0089.JPG)  
